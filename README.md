@@ -4,7 +4,7 @@ Integrantes del equipo:
 
   Mercado Ayala Arturo
   
-  Munguia Pedral Ignacio
+  2.- Munguia Pedral Ignacio
   
   3.- Topete Olivares Alan Jovanni
   
